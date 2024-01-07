@@ -1,0 +1,2 @@
+# newbie
+learning and study
